@@ -1,14 +1,14 @@
-# Coinbase Invite Code: 3KMZM83 — Earn Bonus Rewards on Signup
+# Coinbase Referral Code: 3KMZM83 — Earn Bonus Rewards on Signup
 
 [![Coinbase](https://img.shields.io/badge/Exchange-Coinbase-0052FF?style=flat-square&logo=coinbase&logoColor=white)](https://www.coinbase.com/join/3KMZM83)
-[![Invite Code](https://img.shields.io/badge/Invite%20Code-3KMZM83-00C853?style=flat-square)](https://www.coinbase.com/join/3KMZM83)
+[![Referral Code](https://img.shields.io/badge/Referral%20Code-3KMZM83-00C853?style=flat-square)](https://www.coinbase.com/join/3KMZM83)
 [![Bonus](https://img.shields.io/badge/Signup%20Bonus-Available-FFD600?style=flat-square)](https://www.coinbase.com/join/3KMZM83)
 [![Platform](https://img.shields.io/badge/Available%20In-US%20%26%20140%2B%20Countries-blue?style=flat-square)](https://www.coinbase.com/join/3KMZM83)
 [![Updated](https://img.shields.io/badge/Updated-2026-lightgrey?style=flat-square)](https://www.coinbase.com/join/3KMZM83)
 
-Ready to buy your first Bitcoin or Ethereum? Coinbase is the most popular crypto exchange in the United States — and using the invite code **3KMZM83** when you sign up gets you a bonus reward after your first qualifying trade.
+Ready to buy your first Bitcoin or Ethereum? Coinbase is the most popular crypto exchange in the United States — and using the referral code **3KMZM83** when you sign up gets you a bonus reward after your first qualifying trade.
 
-**[Sign up with code 3KMZM83 →](https://www.coinbase.com/join/3KMZM83)**
+**[Sign up with referral code 3KMZM83 →](https://www.coinbase.com/join/3KMZM83)**
 
 ---
 
@@ -16,7 +16,7 @@ Ready to buy your first Bitcoin or Ethereum? Coinbase is the most popular crypto
 
 | Detail | Info |
 |---|---|
-| Invite Code | **3KMZM83** |
+| Referral Code | **3KMZM83** |
 | Platform | Coinbase |
 | Signup Link | [coinbase.com/join/3KMZM83](https://www.coinbase.com/join/3KMZM83) |
 | Bonus | Signup reward after first qualifying trade |
@@ -28,20 +28,20 @@ Ready to buy your first Bitcoin or Ethereum? Coinbase is the most popular crypto
 
 ## What You Get
 
-When you sign up for Coinbase using invite code **3KMZM83** and complete a qualifying trade, you unlock a signup bonus. Here is what that looks like in practice:
+When you sign up for Coinbase using referral code **3KMZM83** and complete a qualifying trade, you unlock a signup bonus. Here is what that looks like in practice:
 
 - **New user bonus:** After your first trade that meets the minimum threshold, Coinbase deposits a crypto reward directly into your account. The exact bonus amount varies based on current promotions — Coinbase occasionally adjusts these, so the live offer at signup is always the most accurate.
 - **No complicated requirements:** You do not need to hold funds for a lock-up period or complete confusing tasks. Just sign up, verify your identity, and make your first trade.
-- **Both sides benefit:** This is a standard referral structure — when you use someone's invite code, you both get a reward. It is built into how Coinbase grows its user base.
+- **Both sides benefit:** This is a standard referral structure — when you use someone's referral code, you both get a reward. It is built into how Coinbase grows its user base.
 - **Coinbase Earn is separate:** On top of the signup bonus, Coinbase has a learn-and-earn program where you can earn small amounts of free crypto by watching short educational videos. More on that later.
 
 The referral bonus is in addition to whatever crypto you buy. It shows up in your Coinbase account within a few days of your qualifying trade.
 
-**[Claim your bonus — use code 3KMZM83](https://www.coinbase.com/join/3KMZM83)**
+**[Claim your bonus — use referral code 3KMZM83](https://www.coinbase.com/join/3KMZM83)**
 
 ---
 
-## How to Sign Up With Code 3KMZM83
+## How to Sign Up With Referral Code 3KMZM83
 
 This section walks through the entire signup process step by step. If you have never used a crypto exchange before, do not worry — Coinbase is specifically designed to be beginner-friendly.
 
@@ -51,7 +51,7 @@ Open your browser and go to:
 
 **[https://www.coinbase.com/join/3KMZM83](https://www.coinbase.com/join/3KMZM83)**
 
-Using this link makes sure the invite code **3KMZM83** is automatically applied to your account. You can also go to coinbase.com directly and enter the code manually during signup, but using the link is easier.
+Using this link makes sure the referral code **3KMZM83** is automatically applied to your account. You can also go to coinbase.com directly and enter the code manually during signup, but using the link is easier.
 
 ### Step 2: Create Your Account
 
@@ -95,7 +95,7 @@ Once your account is verified and your payment method is connected:
 3. Enter the dollar amount you want to spend
 4. Review the fees and confirm
 
-After your first qualifying trade, your signup bonus from code **3KMZM83** will be credited to your account. You will see it appear in your portfolio within a few business days.
+After your first qualifying trade, your signup bonus from referral code **3KMZM83** will be credited to your account. You will see it appear in your portfolio within a few business days.
 
 ### Tips for Smooth Signup
 
@@ -262,7 +262,7 @@ If you are comparing US-regulated crypto exchanges before deciding where to sign
 | Mobile App Rating | 4.7/5 | 4.3/5 | 4.4/5 |
 | FDIC Insurance (USD) | Yes | No | Yes |
 | Crypto Insurance | Yes (cold storage) | Yes (limited) | Yes (cold storage) |
-| Referral Bonus | Yes — code 3KMZM83 | Yes | Yes |
+| Referral Bonus | Yes — referral code 3KMZM83 | Yes | Yes |
 
 ### When Coinbase is the Right Choice
 
@@ -286,7 +286,7 @@ If you are comparing US-regulated crypto exchanges before deciding where to sign
 
 For most first-time buyers in the US, Coinbase remains the default recommendation — the combination of ease of use, asset selection, and trust makes it the most accessible starting point.
 
-**[Sign up on Coinbase with code 3KMZM83 →](https://www.coinbase.com/join/3KMZM83)**
+**[Sign up on Coinbase with referral code 3KMZM83 →](https://www.coinbase.com/join/3KMZM83)**
 
 ---
 
@@ -341,7 +341,7 @@ Many new users get confused by the difference between Coinbase the exchange and 
 
 ### Coinbase Exchange (What You Sign Up For)
 
-When you create an account at coinbase.com or with invite code **3KMZM83**, you are creating an account on the Coinbase exchange (also called a centralized exchange or CEX). Here is what that means:
+When you create an account at coinbase.com or with referral code **3KMZM83**, you are creating an account on the Coinbase exchange (also called a centralized exchange or CEX). Here is what that means:
 
 - **Custodial:** Coinbase holds your crypto on your behalf. They control the private keys.
 - **Regulated:** Coinbase is a licensed money transmitter. Your account is protected by consumer regulations.
@@ -421,13 +421,13 @@ Legitimate crypto support will never ask for your password, 2FA codes, or privat
 
 ## Frequently Asked Questions
 
-**What is the Coinbase invite code 3KMZM83?**
+**What is the Coinbase referral code 3KMZM83?**
 
-It is a referral code that new Coinbase users can enter at signup to receive a bonus reward after completing their first qualifying trade. Use the link [coinbase.com/join/3KMZM83](https://www.coinbase.com/join/3KMZM83) or enter the code manually during signup.
+It is a referral code that new Coinbase users can enter at signup to receive a bonus reward after completing their first qualifying trade. Use the link [coinbase.com/join/3KMZM83](https://www.coinbase.com/join/3KMZM83) or enter the referral code manually during signup.
 
 **How much is the Coinbase signup bonus?**
 
-The exact bonus amount varies and is subject to change. Coinbase adjusts referral promotions periodically. The current offer is displayed on the signup page when you use the link.
+The exact bonus amount varies and is subject to change. Coinbase adjusts referral promotions periodically. The current offer is displayed on the signup page when you use the referral link.
 
 **Is Coinbase safe for beginners?**
 
@@ -439,7 +439,7 @@ Yes. Coinbase is required by US law to verify the identity of all users. This in
 
 **Can I use Coinbase if I am not in the United States?**
 
-Yes. Coinbase is available in over 100 countries. The available features and supported assets vary by country. The invite code **3KMZM83** works for users in any supported country.
+Yes. Coinbase is available in over 100 countries. The available features and supported assets vary by country. The referral code **3KMZM83** works for users in any supported country.
 
 **What is the difference between Coinbase and Coinbase Advanced?**
 
@@ -451,15 +451,15 @@ Most users are verified within a few minutes. In some cases it can take up to 24
 
 **Is the signup bonus only available for new users?**
 
-Yes. The referral bonus from code **3KMZM83** is only available to users who do not already have a Coinbase account. Existing users cannot claim a new referral bonus by creating a second account.
+Yes. The referral bonus from referral code **3KMZM83** is only available to users who do not already have a Coinbase account. Existing users cannot claim a new referral bonus by creating a second account.
 
 ---
 
 ## Ready to Get Started?
 
-Coinbase is the most accessible crypto exchange for US investors — regulated, beginner-friendly, and backed by over a decade of operating history. Using invite code **3KMZM83** gets you a bonus reward on top of your first purchase.
+Coinbase is the most accessible crypto exchange for US investors — regulated, beginner-friendly, and backed by over a decade of operating history. Using referral code **3KMZM83** gets you a bonus reward on top of your first purchase.
 
-**[Create your Coinbase account with code 3KMZM83 →](https://www.coinbase.com/join/3KMZM83)**
+**[Create your Coinbase account with referral code 3KMZM83 →](https://www.coinbase.com/join/3KMZM83)**
 
 ---
 
