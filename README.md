@@ -6,6 +6,9 @@
 [![Platform](https://img.shields.io/badge/Available%20In-US%20%26%20140%2B%20Countries-blue?style=flat-square)](https://www.coinbase.com/join/3KMZM83)
 [![Updated](https://img.shields.io/badge/Updated-2026-lightgrey?style=flat-square)](https://www.coinbase.com/join/3KMZM83)
 
+> **[Visit our detailed guide with fee tables, FAQ, and more →](https://coinbase-referral-code.vercel.app/)**
+
+
 Ready to buy your first Bitcoin or Ethereum? Coinbase is the most popular crypto exchange in the United States — and using the referral code **3KMZM83** when you sign up gets you a bonus reward after your first qualifying trade.
 
 **[Sign up with referral code 3KMZM83 →](https://www.coinbase.com/join/3KMZM83)**
@@ -464,3 +467,17 @@ Coinbase is the most accessible crypto exchange for US investors — regulated, 
 ---
 
 *Referral bonuses are subject to Coinbase's terms and conditions and may change at any time. Check the Coinbase website for the latest offer details. This is not financial advice — crypto investments carry risk and past performance does not guarantee future results.*
+
+---
+
+## More Referral Codes
+
+| Platform | Referral Code | Link |
+|----------|--------------|------|
+| [Binance](https://binance-referral-code-btcbonus.vercel.app/) | BTCBONUS | 20% Fee Discount |
+| [Bybit](https://bybit-referral-code.vercel.app/) | web3 | Up to $30,000 |
+| [MEXC](https://mexc-referral-code.vercel.app/) | mexc-btcbonus | Zero Maker Fees |
+| [OKX](https://okx-referral-code.vercel.app/) | DEFAULTREF | Fee Discounts |
+| [Bitget](https://bitget-referral-code.vercel.app/) | 7N7PR4 | Copy Trading |
+| [GMX](https://gmx-referral-code.vercel.app/) | PRO | 10% Fee Discount |
+| [Hyperliquid](https://hyperliquid-referral-code-awd.vercel.app/) | AWD | 4% Fee Discount |
